@@ -1,5 +1,5 @@
 # 💫 About Me:
-Undergraduate | Cyber-Security Enthusiastic | Digital Marketing | Interested in Software Development & QA Engineering | Composer | Music Management
+Innovator – MedTech & AI
 
 
 ## 🌐 Socials:
